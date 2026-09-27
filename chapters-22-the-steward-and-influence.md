@@ -528,3 +528,4 @@ And while the King allows me to influence others, may I faithfully represent Him
 
 In Jesus' name,
 **Amen.**
+*Faithfulness in influence begins with remembering Who entrusted it to us.*
